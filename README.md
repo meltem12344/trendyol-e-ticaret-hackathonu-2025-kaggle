@@ -1,0 +1,1 @@
+# trendyol-e-ticaret-hackathonu-2025-kaggle
